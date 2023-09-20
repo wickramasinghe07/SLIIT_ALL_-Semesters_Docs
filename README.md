@@ -10,4 +10,17 @@ Orientation IT : https://drive.google.com/drive/folders/18fSQjdKlawpmANRjT1tT2fj
 
 2nd Year 1st semester IT : https://drive.google.com/drive/folders/1YrKcQkcqYhXA7EZlcD69zTSgus1mbzPK?usp=sharing
 
-2st Year 2nd semester IT : https://drive.google.com/drive/folders/1BcNBRaPW_HIce-W9AqNRTsL9mhJXeLAM?usp=sharing
+2nd Year 2nd semester IT : https://drive.google.com/drive/folders/1BcNBRaPW_HIce-W9AqNRTsL9mhJXeLAM?usp=sharing
+
+
+3rd Year 1st semester IT :
+
+
+3rd Year 2nd semester IT :
+
+
+4th Year 1st semester IT :
+
+
+
+4th Year 2nd semester IT :
