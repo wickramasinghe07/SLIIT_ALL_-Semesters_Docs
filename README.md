@@ -18,6 +18,7 @@ https://drive.google.com/drive/folders/1kfc4hUsSOkb0J0XFd6DOtioX6PAd6LDs
 
 
 3rd Year 2nd semester IT :
+https://drive.google.com/drive/folders/10zuUpw3ofmUdiR6-9DHxfPW0ZW1-BwHe
 
 
 4th Year 1st semester IT :
