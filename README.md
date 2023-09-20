@@ -14,6 +14,7 @@ Orientation IT : https://drive.google.com/drive/folders/18fSQjdKlawpmANRjT1tT2fj
 
 
 3rd Year 1st semester IT :
+https://drive.google.com/drive/folders/1kfc4hUsSOkb0J0XFd6DOtioX6PAd6LDs
 
 
 3rd Year 2nd semester IT :
